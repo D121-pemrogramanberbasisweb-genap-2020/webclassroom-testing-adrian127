@@ -1,3 +1,4 @@
-Nama : 
+Nama : Adrian Yonam L.M
 
-NIM  :
+NIM  : D121181505
+
